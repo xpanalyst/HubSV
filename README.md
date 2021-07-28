@@ -1,1 +1,1 @@
-# HubSV
+# newsy z ostatniej godziny ;-) 
